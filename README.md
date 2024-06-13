@@ -1,2 +1,2 @@
-Hi, I'm an autistic guy that sometimes codes
+Hi, I sometimes code
 :P
